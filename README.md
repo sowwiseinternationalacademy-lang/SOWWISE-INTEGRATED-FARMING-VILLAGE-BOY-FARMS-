@@ -10,3 +10,9 @@ COMPANY’S  PRODUCTS AND SERVICES
 <img width="1731" height="175" alt="image" src="https://github.com/user-attachments/assets/d91802c3-3c9b-4045-a584-cf59ea13b61a" />
 They include thhe following categories:
 - Cassava - Yams - Maize - Pawpaw - Cocoyam - Plantain - Banana - Palm Kernel - Tomatoes - Pepper - Prickly Pear - Grasscutter - Rabbitory - Poultry
+Samples of the products for integration into the line of activities
+<img width="1429" height="613" alt="image" src="https://github.com/user-attachments/assets/7bb8218c-64f1-46dd-8c81-06e187eb9be2" />
+<img width="666" height="464" alt="image" src="https://github.com/user-attachments/assets/5b190f0f-a09b-4075-b475-642f645db43b" />
+<img width="710" height="615" alt="image" src="https://github.com/user-attachments/assets/3e15d92a-613e-482f-b871-0ed3c0a3d33c" />
+<img width="708" height="623" alt="image" src="https://github.com/user-attachments/assets/55e49d66-a79f-4cda-a31e-2e47ab60151e" />
+<img width="756" height="475" alt="image" src="https://github.com/user-attachments/assets/9c02b499-0a2c-477f-8894-d18e521839eb" />
